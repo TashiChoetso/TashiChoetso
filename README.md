@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TashiChoetso
 - 👀 I’m interested Problem solving , Fitness and travelling 
 - 🌱 I’m currently exploring large language models and font end applications 
-- 💞️ I’m looking to collaborate  :)
+- 💞️ I’m looking for  collaborate  :)
 - 📫 How to reach me  : chloetso1996@gmail.com  
 - 😄 Pronouns: ...
 
