@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @TashiChoetso
-- 👀 I’m interested Problem solving , Fitness and travelling 
+- 👀 I’m interested  in Problem solving , Fitness and travelling 
 - 🌱 I’m currently exploring LLM , AI Agent and font end applications 
 - 💞️ I’m looking for  collaboration  :)
-- 📫 How to reach out me   : chloetso1996@gmail.com  
+- 📫 Reach out me   : chloetso1996@gmail.com  
 - 😄 Pronouns: ...
 
 <!---
