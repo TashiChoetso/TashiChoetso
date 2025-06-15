@@ -2,7 +2,7 @@
 - 👀 I’m interested  in Problem solving , Fitness and travelling 
 - 🌱 I’m currently exploring LLM , AI Agent and font end applications 
 - 💞️ I’m looking for  collaboration  :)
-- 📫 Reach out me   : chloetso1996@gmail.com  
+- 📫 Reach out me   : tatso1959@gmail.com
 - 😄 Pronouns: ...
 
 <!---
